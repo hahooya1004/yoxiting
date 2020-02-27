@@ -1,3 +1,3 @@
 # Yoga + Exciting
 
-Yoga site 
+I love hot yoga!
